@@ -1,2 +1,1 @@
-# Surprise
-LOL FUNNY RECKROLL
+This is funny site yes?
